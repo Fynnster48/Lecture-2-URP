@@ -1,13 +1,6 @@
-# Lecture 2 URP
+https://imgur.com/a/yKglGt8 - Green
 
+https://imgur.com/a/TJMuabj - Red
 
-
-YIPPEEEEEEEEEEEEEE
-HI HI HI
-
-WORK
-
-TEST
-
-YAY
+https://imgur.com/a/ThVM79m - Blue
 
